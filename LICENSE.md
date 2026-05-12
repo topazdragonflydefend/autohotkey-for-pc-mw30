@@ -1,4 +1,4 @@
-# 
+# Enhance AutoHotkey for PC | AutoHotkey for Windows with automatic AutoHotkey for PC | AutoHotkey for Windows Addon | hotkey-customization + image-resizer, the #1 addon. Includes
 
 
 
